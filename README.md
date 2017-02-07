@@ -1,2 +1,0 @@
-# NOC-Meiko
-test
