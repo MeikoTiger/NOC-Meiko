@@ -1,6 +1,0 @@
-wrkorwkfpowerkfopkwe
-
-wrkorwkfpowerkfopkwefwefwefwe
-
-wfwef
-we
